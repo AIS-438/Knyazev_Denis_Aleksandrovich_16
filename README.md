@@ -1,4 +1,4 @@
-# Knyazev_Denis_Aleksandrovich_16ф# Knyazev_Denis_Aleksandrovich_16
+# Knyazev_Denis_Aleksandrovich_16
 
 ## Введение
 
